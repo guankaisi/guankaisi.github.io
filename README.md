@@ -1,1 +1,1 @@
-Home page for Qian Cao (aka. Aman).
+Home page for Kaisi Guan (Copy from Qian Cao).
